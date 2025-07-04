@@ -1,8 +1,8 @@
 # (BOOSTER) Wie Bekommt man Goldbarren bei Candy Crush 2025 für iOS und Android
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/2e54642/?=candycrushsaga)
+## [KLICKEN SIE HIER](https://www.ravagegaming.monster/gaming/2e54642/?=candycrushsaga)
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/2e54642/?=candycrushsaga)
+## [KLICKEN SIE HIER](https://www.ravagegaming.monster/gaming/2e54642/?=candycrushsaga)
 
 Kostenlose Goldbarren und Leben für Candy Crush findest du genau hier! Mit diesem Candy Crush Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Goldbarren und Leben generieren und hast deutlich mehr Spaß wie bisher. 
 
